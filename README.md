@@ -14,6 +14,8 @@
 永久地址发布站
 
 地址1: [https://9527.rocks/y6sSM6](https://9527.rocks/y6sSM6)
+地址2: [https://9527.rocks/X86TEJ](https://9527.rocks/X86TEJ)
+地址3: [https://9527.rocks/dpkE4p](https://9527.rocks/dpkE4p)
 
 
 国产浏览器(如 UC、360、QQ、百度) 不定期可能会屏蔽网站，建议使用谷歌浏览器或者Edge观看 
